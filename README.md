@@ -1,16 +1,11 @@
-### Hi there 👋
+### a kool Egyptian boi who loves Linux and open source
+real first name: anas
+birth date: 2008
+current os: arch btw
+learning: c++
+thing he loves to listen: https://youtu.be/zuJxjPK2TgU?si=vAqxnG1m9o8MZvJD
+pfp name: dotPointerBoi
 
-<!--
-**DaRandomCube/DaRandomCube** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ولا توافق من غوى  وقل بأن ذا القوى  حقا على العرش استوى  كما أراد فاسمع
+وهو تعالى في السما  عال ومعنى ((أينما))  بغير كيف لا كما  يخطر للمبتدع
+still wip
