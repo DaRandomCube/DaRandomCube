@@ -2,8 +2,8 @@
 still wip \
 real first name: anas \
 birth date: 2008 \
-current os: arch btw \
-learning: c++ \
+current os: fedora \
+learning: c++ (paused) \
 thing he loves to listen: https://youtu.be/zuJxjPK2TgU?si=vAqxnG1m9o8MZvJD \
 discord username: `darandomcube` \
 accepting friend requests **only from muslims**, dm is still open for all \
