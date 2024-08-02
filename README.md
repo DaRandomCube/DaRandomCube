@@ -5,7 +5,8 @@ birth date: 2008 \
 current os: arch btw \
 learning: c++ \
 thing he loves to listen: https://youtu.be/zuJxjPK2TgU?si=vAqxnG1m9o8MZvJD \
-pfp name: dotPointerBoi 
-
-ولا توافق من غوى  وقل بأن ذا القوى  حقا على العرش استوى  كما أراد فاسمع \
-وهو تعالى في السما  عال ومعنى ((أينما))  بغير كيف لا كما  يخطر للمبتدع \
+discord username: `darandomcube` \
+accepting friend requests **only from muslims**, dm is still open for all \
+my tech server (currently dead): https://discord.gg/RfKbNKQHq9 \
+ولا توافق من غوى...وقل بأن ذا القوى...حقا على العرش استوى...كما أراد فاسمع \
+وهو تعالى في السما...عال ومعنى ((أينما))...بغير كيف لا كما...يخطر للمبتدع \
