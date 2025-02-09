@@ -13,4 +13,4 @@ discord username (will be inactive): `darandomcube`
 
 telegram account: t.me/anasTheSuperUserGuy 
 
-accepting friend requests **only from muslims**, dm is still open for all 
+accepting friend requests **only from muslims**, dm is still open for all via the server link above
