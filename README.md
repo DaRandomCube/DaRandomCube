@@ -1,7 +1,7 @@
 ### a kool Egyptian boi who loves Linux and open source
 ~~still wip~~ you know when you add an implementation and call it temporary, and then barely change it? 
 
-birth date: 2008 
+age: 16
 
 learning: c++ (paused) 
 
