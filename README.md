@@ -1,21 +1,21 @@
 ### a kool Egyptian boi who loves Linux and open source
-~~still wip~~ you know when you add an implementation and call it temporary, and then barely change it? \
+~~still wip~~ you know when you add an implementation and call it temporary, and then barely change it? 
 
-real first name: anas \
+real first name: anas 
 
-birth date: 2008 \
+birth date: 2008 
 
-learning: c++ (paused) \
+learning: c++ (paused) 
 
-thing he loves to listen: https://youtu.be/zuJxjPK2TgU?si=vAqxnG1m9o8MZvJD \
+thing he loves to listen: https://youtu.be/zuJxjPK2TgU?si=vAqxnG1m9o8MZvJD 
 
-DM request portal so you don't need to do a friend request: https://discord.gg/9s7B5kpUNU \
+DM request portal so you don't need to do a friend request: https://discord.gg/9s7B5kpUNU 
 
-discord username (will be inactive): `darandomcube` \
+discord username (will be inactive): `darandomcube` 
 
-telegram account: t.me/anasTheSuperUserGuy \
+telegram account: t.me/anasTheSuperUserGuy 
 
-accepting friend requests **only from muslims**, dm is still open for all \
-ولا توافق من غوى...وقل بأن ذا القوى...حقا على العرش استوى...كما أراد فاسمع \
+accepting friend requests **only from muslims**, dm is still open for all 
+ولا توافق من غوى...وقل بأن ذا القوى...حقا على العرش استوى...كما أراد فاسمع 
 
-وهو تعالى في السما...عال ومعنى ((أينما))...بغير كيف لا كما...يخطر للمبتدع \
+وهو تعالى في السما...عال ومعنى ((أينما))...بغير كيف لا كما...يخطر للمبتدع 
