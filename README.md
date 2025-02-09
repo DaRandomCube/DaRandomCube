@@ -14,6 +14,3 @@ discord username (will be inactive): `darandomcube`
 telegram account: t.me/anasTheSuperUserGuy 
 
 accepting friend requests **only from muslims**, dm is still open for all 
-ولا توافق من غوى...وقل بأن ذا القوى...حقا على العرش استوى...كما أراد فاسمع 
-
-وهو تعالى في السما...عال ومعنى ((أينما))...بغير كيف لا كما...يخطر للمبتدع 
