@@ -3,10 +3,12 @@
 
 age: 16
 
-DM request portal so you don't need to do a friend request: https://discord.gg/9s7B5kpUNU 
+~~DM request portal so you don't need to do a friend request: https://discord.gg/9s7B5kpUNU~~
 
-discord username: `darandomcube` 
+~~discord username: `darandomcube`~~
 
-telegram account: t.me/anasTheSuperUserGuy 
+won't be on discord, use telegram instead
+
+telegram account: t.me/daRandomCube
 
 accepting friend requests **only from muslims**, dm is still open for all via the server link above
