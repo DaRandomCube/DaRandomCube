@@ -7,7 +7,7 @@ age: 16
 
 ~~discord username: `darandomcube`~~
 
-won't be on discord, use telegram instead
+won't be on discord, use telegram or matrix instead
 
 telegram account: t.me/daRandomCube
 
