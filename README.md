@@ -8,3 +8,6 @@ DM request portal so you don't need to do a friend request: https://discord.gg/9
 discord/telegram/matrix username: `darandomcube`
 
 accepting friend requests **only from muslims**, dm is still open for all via the server link above
+
+
+learning python btw
